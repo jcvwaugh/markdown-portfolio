@@ -8,5 +8,5 @@ A few of my favourite things
   3. Joakim Noah
   
   
-  *I also love pizza
-  *Cheese in general
+  * I also love pizza
+  * Cheese in general
