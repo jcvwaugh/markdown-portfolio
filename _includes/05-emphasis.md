@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am adept at **language and linguistics**, I love hanging out with friends, my favourite poet is _T.S. Eliot_.
