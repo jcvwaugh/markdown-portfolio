@@ -1,0 +1,1 @@
+![Image of jcvwaugh](https://c.neevacdn.net/image/fetch/s--MVeGqWYo--/https%3A//yt3.ggpht.com/-7zFDHK5X45w/AAAAAAAAAAI/AAAAAAAAAAA/QJfHeLTEZwE/s900-c-k-no-mo-rj-c0xffffff/photo.jpg?savepath=photo.jpg)
